@@ -1,1 +1,0 @@
-# angry-soviet-game2
